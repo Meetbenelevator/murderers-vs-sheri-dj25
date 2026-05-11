@@ -1,4 +1,4 @@
-#  
+#  secret Scripts for murderers vs sheriffs 2 offers the most advanced murderers vs sheriffs 2 Script, with private server access and auto-farm. Perfect
 
 
 
